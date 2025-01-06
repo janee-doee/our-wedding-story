@@ -1,1 +1,1 @@
-# ourweddingstory.github.io
+# ourweddingstory
